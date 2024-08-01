@@ -1,1 +1,1 @@
-# mr-olympia
+Mr. Olympia Rebranding Project
